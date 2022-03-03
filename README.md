@@ -1,1 +1,1 @@
-# Electromagnetism
+# Electromagnetisme
